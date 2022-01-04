@@ -1,0 +1,5 @@
+- olá eu sou o: @Kachorrofofiz
+- 🐇 eu tenho interesse em arte, e animais
+- 🌌 eu também gosto da natureza
+- 🌙 eu sou novo
+---> pronomes: ele/dele idade: não vou revelar, animal favorito: lince, jogos favoritos: animal jam, wildcraft, pony town.
